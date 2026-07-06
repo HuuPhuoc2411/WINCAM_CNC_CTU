@@ -28,7 +28,7 @@ Link tải phần mềm tại đây [link](https://drive.google.com/drive/folder
 </picture>
 </br>
 
-Liên hệ hỗ trợ qua zalo: 0559092549 (Hữu Phước)
+Liên hệ hỗ trợ qua zalo: 0934511069 (Hữu Phước)
 ## CODE MẪU BÀI PHÂY CNC
 - Bài 1:
 </br>
